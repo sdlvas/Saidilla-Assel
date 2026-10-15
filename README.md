@@ -1,2 +1,0 @@
-# Saidilla-Assel
-sv
